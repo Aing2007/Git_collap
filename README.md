@@ -1,1 +1,1 @@
-Hellorogjepigjeorqk;gqerpig[]
+ีThis project is developed by Team A.
